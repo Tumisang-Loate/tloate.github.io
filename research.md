@@ -7,7 +7,7 @@
 [Can monetary and fiscal policy account for South Africa's stagnation? 2024]( https://www.resbank.co.za/content/dam/sarb/publications/working-papers/2024/Can%20monetary%20and%20fiscal%20policy%20account%20for%20South%20Africa%27s%20economic%20stagnation.pdf)
 > With Nicola Viegi
 
-[Sailing into the Wind: evaluating the (near) future of Monetary Policy in South Africa. 2021](https://www.resbank.co.za/content/dam/sarb/publications/working-papers/2021/WP%202106.pdf)
+[Sailing into the wind: evaluating the (near) future of Monetary Policy in South Africa. 2021](https://www.resbank.co.za/content/dam/sarb/publications/working-papers/2021/WP%202106.pdf)
 > With Ekaterina Pirozhkova and Nicola Viegi 
 
 [The Transmission of Monetary Policy Via the Banks' Balance Sheet: Does Bank Size Matter? 2021](http://www.up.ac.za/media/shared/61/WP/wp_2021_09.zp198615.pdf)
