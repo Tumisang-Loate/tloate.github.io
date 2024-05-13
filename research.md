@@ -1,3 +1,5 @@
+## Publications, working papers and work in progress
+
 Kabundi, A., Loate, T. and Viegi, N. 2020. Spillovers of the Conventional and Unconventional Monetary Policy from the US to South Africa. South African Journal of Economics, 88(4), pp.435-471. [link: SAJE link or close working paper?]
 
 Loate, T. and Viegi, N. 2024. Can monetary and fiscal policy account for South Africa's stagnation? South African Reserve Bank Working Paper Series, WP/24/03. [link: https://www.resbank.co.za/content/dam/sarb/publications/working-papers/2024/Can%20monetary%20and%20fiscal%20policy%20account%20for%20South%20Africa%27s%20economic%20stagnation.pdf]
