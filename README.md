@@ -2,7 +2,7 @@
 
 I'm a macroeconomist seeking to understand the effect of fiscal and monetary policy in an unequal society
 
-- MCom/PdD in Economics (University of Pretoria)
+- MCom/PhD in Economics (University of Pretoria)
 - Email: tumisang.loate@up.ac.za
 - Curriculum Vitae - to insert link
 
